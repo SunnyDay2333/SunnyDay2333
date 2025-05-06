@@ -3,7 +3,9 @@
 
 hello, I am**SunnyDay2333**or you call me "自然晴".
 
-Here are some ideas to get you started:
+My profile photo is momoka,who is a virtual character in *GirlsBandCry*
+
+Here are some introduction for me:
 
 - 🔭 I’m currently majoring in ComputerScience.
 - 🌱 I’m currently studying at hainu.
