@@ -1,7 +1,7 @@
 ### Hi~
 
 
-hello, I am **SunnyDay2333** or you call me "自然晴".
+I am **SunnyDay2333** or you call me "自然晴".
 
 My profile photo is momoka,who is a character in *GirlsBandCry*.
 maybe I will change this photo as my personal virtual avatar，actually I have planned this for a long time ...
